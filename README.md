@@ -1,2 +1,2 @@
 # Fishuuu
-Fish.
+some arts cuz yall deserteurs it frm me^^
