@@ -1,2 +1,2 @@
 # Fishuuu
-some arts cuz yall deserteurs it frm me^^
+some arts,,     CUZ YALL DESERVE IT ><
